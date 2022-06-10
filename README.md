@@ -53,7 +53,7 @@ _дистанционное изучение языка по скайпу, ко�
  [?? Download](https://www.dropbox.com/s/eg3t216iktsofrc/%D0%A2%D0%97%20Skyford%20%D0%B4%D0%BB%D1%8F%20YouTube.rar?dl=1)
 
  #### <div dir="rtl">:Договор на оказание рекламных услуг (.pdf) </div>
- [?? Download](https://www.dropbox.com/s/939mwp5tts8befo/%D0%94%D0%BE%D0%B3%D0%BE%D0%B2%D0%BE%D1%80%20%D0%BD%D0%B0%20%D1%80%D0%B5%D0%BA%D0%BB%D0%B0%D0%BC%D1%83%20%D0%BF%D0%BE%20%D0%BF%D1%80%D0%B5%D0%B4%D0%BE%D0%BF%D0%BB%D0%B0%D1%82%D0%B5.rar?dl=1)
+ [?? Download]([https://www.dropbox.com/s/939mwp5tts8befo/%D0%94%D0%BE%D0%B3%D0%BE%D0%B2%D0%BE%D1%80%20%D0%BD%D0%B0%20%D1%80%D0%B5%D0%BA%D0%BB%D0%B0%D0%BC%D1%83%20%D0%BF%D0%BE%20%D0%BF%D1%80%D0%B5%D0%B4%D0%BE%D0%BF%D0%BB%D0%B0%D1%82%D0%B5.rar?dl=1](https://www.dropbox.com/s/sxdfscp8yxjvbiv/%D0%B4%D0%BE%D0%B3%D0%BE%D0%B2%D0%BE%D1%80.rar?dl=1)
 
    ...
 </details></div>
